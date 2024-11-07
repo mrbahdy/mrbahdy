@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... cybersecurity
 - 🌱 I’m currently learning ... penetration testing
 - 💞️ I’m looking to collaborate on ... with people with like minds
-- 📫 How to reach me ... calen2008@gmail.com
+- 📫 How to reach me ... agucaleb2008@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
